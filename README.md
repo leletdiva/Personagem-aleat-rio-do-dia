@@ -1,0 +1,1 @@
+# Personagem-aleat-rio-do-dia
